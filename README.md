@@ -1,1 +1,1 @@
-# WebAcadamy
+# WebAcademy
